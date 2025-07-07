@@ -6,7 +6,7 @@
 
 点击访问：<a href="https://cfad.pages.dev/">av变态另类天堂无码</a>
 
-点击访问：<a href="tps://gfd-5xg.pages.dev/">久久人妻精品免费一区</a>
+点击访问：<a href="https://gfd-5xg.pages.dev/">久久人妻精品免费一区</a>
 
 日本AV免费视频资源站合集（2025更新）
 你是否还在寻找日本AV免费的高质量资源？2025年我们为你整理了最全的免费观看平台，无需注册、每日更新、有码无码任选，支持手机与电脑在线播放，安全可靠，适合所有老司机与新手用户。
@@ -32,4 +32,4 @@ FC2投稿频道：大量日本素人自拍合集，内容真实、更新频繁�
 🧾 合法性与版权提醒
 本文所推荐平台均为网络公开资源站，仅作索引整理，不存储或传播任何影视内容。我们建议使用 日本节点VPN 访问，并安装广告拦截插件以提升观影体验。如想支持原创，请访问正规平台如 FANZA、R18.com、DLsite 等。
 
-<span style="display:none;">[Canonical link](）</span>
+<span style="display:none;">[Canonical link](https://github.com/aivi7932/87877 ）</span>
